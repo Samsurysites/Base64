@@ -1,2 +1,2 @@
-Created by Virlyz Nyzam author Samsury Blog
+Created by Virlyz Nyzam
 Untuk instalasinya bisa langsung mengunjungi http://www.samsury.id
